@@ -1,4 +1,5 @@
-![•⊱ 𝐂𝐚𝐥𝐞 𝐇𝐞𝐧𝐢𝐭𝐮𝐬𝐞 •༢](https://github.com/user-attachments/assets/4ed27ff6-4dd8-404e-ac0b-882f532da452)
+![•⊱ 𝐂𝐚𝐥𝐞 𝐇𝐞𝐧𝐢𝐭𝐮𝐬𝐞 •༢](https://github.com/user-attachments/assets/197863d8-06b9-445f-b87d-2e83321b61d4)
+
 <em>“I’m going to live for a very long time. I will be a wealthy slacker.”</em>
 <p align="right">— Cale Henituse</p>
 
