@@ -1,4 +1,6 @@
-## Hi there 👋
+![•⊱ 𝐂𝐚𝐥𝐞 𝐇𝐞𝐧𝐢𝐭𝐮𝐬𝐞 •༢](https://github.com/user-attachments/assets/4ed27ff6-4dd8-404e-ac0b-882f532da452)
+<em>“I’m going to live for a very long time. I will be a wealthy slacker.”</em>
+<p align="right">— Cale Henituse</p>
 
 <!--
 **DevotedToCale/DevotedToCale** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
